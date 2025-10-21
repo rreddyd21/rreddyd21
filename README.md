@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ruthvika Reddy
-- 👀 My goal is to get a job in TCS or Wipro
+- 👀 My goal is to get a job in IT Company 
 - 🌱 I’m currently pursuing B.Tech  Data Science as a specialization in Computer Science Engineering
 - 💞️ My Hobbies are playing both indoor and outdoor games listening to music and exploring new
 - 📫 you can reach me by email ruthvikareddy687@gmail.com
